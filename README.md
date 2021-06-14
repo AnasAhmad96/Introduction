@@ -1,8 +1,8 @@
 # ANAS AHMAD OUDAT
-
+ 
 -----
 
-<div align="center">Jordan, Amman, +962 790249756<br> Oudatanas96@gmail.com<br> N: Jordanian, DOB: 20/03/1996 </div>
+Jordan, Amman, +962 790249756<br> Oudatanas96@gmail.com<br> N: Jordanian, DOB: 20/03/1996
 
 -----
 
