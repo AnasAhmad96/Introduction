@@ -1,4 +1,4 @@
-# <div align="center"> ANAS AHMAD OUDAT </div>
+# ANAS AHMAD OUDAT
 
 -----
 
